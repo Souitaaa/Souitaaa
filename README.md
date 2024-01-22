@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning in a school ;)
 - 💞️ I’m looking to collaborate on (i'm not )
-- 📫 How to reach me 
+- 📫 How to reach me souita404@gmail.com 
 - ⚡ Fun fact: my friend is gay .
 
 <!---
