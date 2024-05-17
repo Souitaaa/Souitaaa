@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in a school ;)
 - 💞️ I’m looking to collaborate on (i'm not )
 - 📫 How to reach me souita404@gmail.com 
-- ⚡ Fun fact: my friend is gay .
+- ⚡ Fun fact: my friend is gay @boumlik000.
 
 <!---
 Souitaaa/Souitaaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
